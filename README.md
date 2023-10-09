@@ -10,4 +10,5 @@ jogador de BASQUETE
 
 LOS ANGELES LAKERS 
 
-![download](https://github.com/Cortezzofc/Cortezzofc/assets/143611985/c10255f0-08fc-4ba1-9902-e86f146d32e2)
+![los-angeles-lakers-nba-logo-D303ACAC63-seeklogo com](https://github.com/Cortezzofc/Cortezzofc/assets/143611985/cbd0cc74-8d89-4067-ac7b-a89b342db94d)
+
